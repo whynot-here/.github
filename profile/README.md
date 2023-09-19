@@ -30,8 +30,9 @@
 
 - 2023\. 01\. 03\. | 픽키몰 사업 콜라보 제안
 
-- 2023\. 04\. 16\. | 모바일 서비스 런칭 & 한슐랭 이벤트
+- 2023\. 04\. 16\. | 모바일 서비스 런칭 & <a href="https://www.instagram.com/p/CrIHmbhpmHr/?utm_source=ig_web_copy_link&igshid=MzRlODBiNWFlZA==" target="_blank">한슐랭 이벤트</a>
 
+- 2023\. 09\. 11\. | <a href="https://www.instagram.com/p/CxAzbF1ppUr/?utm_source=ig_web_copy_link&igshid=MzRlODBiNWFlZA==" target="_blank">한대소(한동대 소개팅) 이벤트</a>
 
 
 <br />
